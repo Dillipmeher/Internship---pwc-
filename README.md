@@ -14,3 +14,14 @@
 6️⃣ Skills Showcase: During my internship, I honed my Power BI skills, crafting dashboards that effectively communicated KPIs. My strong communication and analytical skills were evident in delivering valuable insights and solutions to engagement partners.
 
 Thrilled to have been part of such impactful initiatives at PwC! Looking forward to continued growth and contribution in shaping the digital future. Join us in the skills revolution! 💼✨ #PwC #DigitalTransformation #SkillsRevolution
+
+
+![image](https://github.com/Dillipmeher/Internship---pwc-/assets/143451788/5ab9284b-6efe-416b-a51e-9afe9f5a5e32)
+
+![image](https://github.com/Dillipmeher/Internship---pwc-/assets/143451788/698c94fd-e4d8-44bb-b8b2-7dea20c49a65)
+
+![image](https://github.com/Dillipmeher/Internship---pwc-/assets/143451788/9f330064-6324-4886-8202-1122975e600c)
+
+![image](https://github.com/Dillipmeher/Internship---pwc-/assets/143451788/0a000ae7-2113-4505-be08-31cdc51686c3)
+
+![image](https://github.com/Dillipmeher/Internship---pwc-/assets/143451788/e483c573-01cc-4f3e-9407-d75bc4c2814f)
